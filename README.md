@@ -1,4 +1,4 @@
-Olá! Me chamo Natanael Moises Leão 👋
+Olá! Me chamo Natanael Moises Leão
 
 ##
 
